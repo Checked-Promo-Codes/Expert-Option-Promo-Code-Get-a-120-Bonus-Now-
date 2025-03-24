@@ -2,7 +2,7 @@
 
 ## 🚀 Jumpstart Your Trading Journey with a Whopping 120% Deposit Bonus  
 
-Are you looking for an **Expert Option promo code** that actually works? You’re in the right place! Use **[G1012634001](https://expertoption.com/)** when making a **minimum deposit of just $10**, and you’ll receive a massive **120% deposit bonus instantly**.  
+Are you looking for an **Expert Option promo code** that actually works? You’re in the right place! Use **[G1012634001](https://smartthriftfinder.com/expert-option-kostya)** when making a **minimum deposit of just $10**, and you’ll receive a massive **120% deposit bonus instantly**.  
 
 That means **more trading power, bigger profit opportunities, and less risk** on your investment!  
 
@@ -25,7 +25,7 @@ For example, if you **deposit $50**, you'll receive an **extra $60**, giving you
 
 | **Promo Code**  | **Bonus Amount**  | **Validity**  | **Minimum Deposit**  |  
 |-----------------|------------------|--------------|----------------------|  
-| **[G1012634001](https://expertoption.com/)** | 120% Deposit Bonus | Active & Verified | $10 |  
+| **[G1012634001](https://smartthriftfinder.com/expert-option-kostya)** | 120% Deposit Bonus | Active & Verified | $10 |  
 
 ---
 
