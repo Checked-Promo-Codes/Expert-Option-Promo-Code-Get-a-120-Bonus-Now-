@@ -54,7 +54,7 @@ For example, if you **deposit $50**, you'll receive an **extra $60**, giving you
   </ul>
 ---
 <a href='https://r.shortlify.com/?prefid=1012634001&ptr=kostya&brand=xO2ymw'>
-  <img style='width: 100%' src='https://cdn.getprofit.com/b/185.jpg' alt='Expert Option Promo Code' title='Get a 120 Bonus now' />
+  <img style='width: 100%' src='https://cdn.getprofit.com/b/185.jpg' alt='Expert Option 120% Bonus Code' title='Get a 120 Bonus now' />
 </a>
 
 ## 📈 Why Trade on Expert Option?  
