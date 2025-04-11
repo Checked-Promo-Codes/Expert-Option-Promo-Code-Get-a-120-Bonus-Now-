@@ -75,3 +75,9 @@ Expert Option is a **top-rated trading platform**, offering a **user-friendly ex
 Expert Option provides a **seamless trading experience** with **fast withdrawals** and **amazing bonuses**. By using promo code **G1012634001**, you can **instantly boost your deposit by 120%** and start trading with a **larger balance**.  
 
 📢 **Act now! Claim your 120% deposit bonus today and jumpstart your trading journey on Expert Option!** 🚀  
+<h3>Follow us in Social Media</h3>
+<ul>
+<li><a href="https://github.com/Checked-Promo-Codes">Github</a></li>
+<li><a href="https://mirror.xyz/0xaFcA0DCAfB999A248e24C9FFCA942c9fbC17B19C">Mirror.xyz</a></li>
+<li><a href="https://x.com/pocketoption100">Twitter</a></li>
+</ul>
